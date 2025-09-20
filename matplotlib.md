@@ -1,6 +1,0 @@
-kal prhy gy ye 
-  
-  
-   
- 
- 
